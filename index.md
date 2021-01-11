@@ -1,3 +1,3 @@
-## Welcome to Bird Staking pool
+## Welcome to Meise Staking pool
 
 ...to be continued.
